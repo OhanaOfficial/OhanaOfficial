@@ -1,29 +1,10 @@
-# 🌺 Ohana Family | Solana Ecosystem
+# Ohana Family | Solana Ecosystem
 
-### 💙 Trust isn't given, it’s earned with every wave.
+**Trust isn't given, it's earned with every wave.**  
+Welcome to the Ohana Family, a community-focused project in the Solana ecosystem. We build slow and strong, valuing trust, community, and long-term growth.
 
-### 💎 Official Contract Address (CA):
-97DyT1rFrLBrKgA4x1cDmLitKCfHxqM8bWdLwXWhpump
+## Our Vision
+We aim to foster a community rooted in transparency, collaboration, and the aloha spirit. Together, we build an ecosystem that lasts.
 
-Welcome to the **Ohana Family**. We believe in building "Slow & Strong". In a world of fast moves, we choose to build a foundation that lasts.
-
----
-
-### 🌊 Our Philosophy
-* **Family First:** We grow together, supporting every member of the community.
-* **Transparency:** Open heart, open code.
-* **Consistency:** Wave by wave, we build the future of Solana.
-
----
-
-### Connect with us
-
-**YouTube:** https://www.youtube.com/@aloha.ohana.solana
-
-* **X (Twitter):** https://x.com/OhanaSolana
-
-* **TikTok:** https://www.tiktok.com/@ohanasolana
-
-**Pump.fun:** https://pump.fun/profile/ohanafam2026
-
-> *"Ohana means family. Family means nobody gets left behind or forgotten."* > **Build with us. Stay with us.** ⚙️💖
+## How to Contribute
+We welcome contributions! Check out our roadmap and open issues. Join us on this journey of building with trust.
