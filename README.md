@@ -14,9 +14,9 @@ Welcome to the **Ohana Family**. We believe in building "Slow & Strong". In a wo
 ---
 
 ### 🚀 Connect with us
-Ohana Family (@OhanaSolana) / X
-Ohana Family (@ohanasolana) | TikTok
-Ohana Family - YouTube
+https://x.com/OhanaSolana
+https://www.tiktok.com/@ohanasolana
+https://www.youtube.com/@aloha.ohana.solana
 https://pump.fun/profile/ohanafam2026
 
 > *"Ohana means family. Family means nobody gets left behind or forgotten."* > **Build with us. Stay with us.** ⚙️💖
