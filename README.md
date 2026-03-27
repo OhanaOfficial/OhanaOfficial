@@ -13,10 +13,22 @@ Welcome to the **Ohana Family**. We believe in building "Slow & Strong". In a wo
 
 ---
 
-### 🚀 Connect with us
-https://x.com/OhanaSolana
-https://www.tiktok.com/@ohanasolana
-https://www.youtube.com/@aloha.ohana.solana
-https://pump.fun/profile/ohanafam2026
+### Connect with us
+
+**YouTube:** [https: //www.youtube
+
+* **X (Twitter):** [https://x.com
+
+/OhanaSolana](https://x.com/OhanaSolana)
+
+* **TikTok:** [https://www.tiktok.com /@ohanasolana](https://www.tiktok.com /@ohanasolana)
+
+*
+
+.com/@aloha.ohana.solana](https://www
+
+.youtube.com/@aloha.ohana.solana)
+
+**Pump.fun:** [https://pump.fun /profile/ohanafam2026](https://pump.fun /profile/ohanafam2026)
 
 > *"Ohana means family. Family means nobody gets left behind or forgotten."* > **Build with us. Stay with us.** ⚙️💖
