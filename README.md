@@ -15,19 +15,11 @@ Welcome to the **Ohana Family**. We believe in building "Slow & Strong". In a wo
 
 ### Connect with us
 
-**YouTube:** [https: //www.youtube
+**YouTube:** https://www.youtube.com/@aloha.ohana.solana
 
-* **X (Twitter):** [https://x.com
+* **X (Twitter):** https://x.com/OhanaSolana
 
-/OhanaSolana](https://x.com/OhanaSolana)
-
-* **TikTok:** [https://www.tiktok.com /@ohanasolana](https://www.tiktok.com /@ohanasolana)
-
-*
-
-.com/@aloha.ohana.solana](https://www
-
-.youtube.com/@aloha.ohana.solana)
+* **TikTok:** [https://www.tiktok.com /@ohanasolana
 
 **Pump.fun:** [https://pump.fun /profile/ohanafam2026](https://pump.fun /profile/ohanafam2026)
 
