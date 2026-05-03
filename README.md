@@ -13,4 +13,4 @@ We welcome collaboration! Check our roadmap and open issues. Join us on this jou
 - [X (Twitter)](https://x.com/OhanaSolana)
 - [YouTube](https://www.youtube.com/@aloha.ohana.solana)
 - [TikTok](https://www.tiktok.com/@ohanasolana)
-- [Pump.fun](https://pump.fun/profile/ohanafam2026)
+- [Pump.fun](https://pump.fun/profile/ohanafam)
