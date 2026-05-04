@@ -10,6 +10,7 @@ Our goal is to build a community based on transparency, collaboration, and the a
 We welcome collaboration! Check our roadmap and open issues. Join us on this journey of building trust.
 
 ## Connect with Us
+- [Website](https://shortlink.uk/1oZx-)
 - [X (Twitter)](https://x.com/OhanaSolana)
 - [YouTube](https://www.youtube.com/@aloha.ohana.solana)
 - [TikTok](https://www.tiktok.com/@ohanasolana)
